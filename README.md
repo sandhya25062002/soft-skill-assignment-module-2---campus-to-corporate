@@ -1,0 +1,1 @@
+# soft-skill-assignment-module-2---campus-to-corporate
